@@ -1,0 +1,1 @@
+We are an independent initiative committed to building ethical, user-respecting software.
